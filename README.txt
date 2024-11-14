@@ -34,6 +34,6 @@
 
 Если возникнут вопросы, с радостью ответим в телеграмме: @taychinov @Doppler67
 
-
+Папка artifacts на Гугл Диске: https://drive.google.com/drive/folders/1fzX1aZ3nSWQm1iD1hQYjipoU2YxXzZ_E?usp=sharing
 
 
